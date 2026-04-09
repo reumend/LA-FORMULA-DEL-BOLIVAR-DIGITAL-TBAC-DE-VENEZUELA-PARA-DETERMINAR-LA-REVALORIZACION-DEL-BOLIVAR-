@@ -300,6 +300,7 @@ Esta teoría se publica bajo licencia de dominio público (CC0) para fomentar su
 
 
 
+
 FÓRMULA DE REVALORIZACIÓN MONETARIA DEL BOLÍVAR DIGITAL (TBAC)
 Aplicación a todas las economías del continente americano
 Abril 2026
